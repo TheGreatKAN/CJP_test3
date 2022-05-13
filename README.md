@@ -1,0 +1,1 @@
+Mint your Crypto JAckpot Golden Tickets for a 2 drawings in a weekly jackpot!!!
